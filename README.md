@@ -6,7 +6,7 @@
 - 🧀 I’m from Brazil, Minas Gerais.
 - 🌱 I’m currently learning everything 🤣
 - 🎶 I love spending my free time playing an instrument, guitar and keyboard, and singing. 
-- 🥅 Goals for 2024/2025: Improve my English and deepen my knowledge in technology.
+- 🥅 Goals for 2025/2026: Improve my English and deepen my knowledge in technology.
 - ⚡ Currently pursuing a Bachelor's degree in Information Systems, in the 6th semester.
 
 ---
